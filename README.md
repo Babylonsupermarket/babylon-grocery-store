@@ -1,0 +1,2 @@
+# babylon-grocery-store
+It all started in 1999,when Iranian origin Haddad's family who live in U.K for almost 30 years now, thought of bringing the food items and all different grocery items from the Middle East. With the combination of products from Turkey, Iran, Arab Countries and other Middle East countries, we are able to bring you the taste of east in Scotland, in results it works out best for the people moved in U.K from the Mediterranean will not have to miss the home made cooking with the same ingredients as back home.
